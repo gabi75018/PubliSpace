@@ -4,4 +4,4 @@
 **PUBLISPACE SERVEUR DISCORD FRANCAIS**
 
 
-**[SERVEUR DISCORD](https://discord.gg/XVyUQ7UfQS) | [SITE INTERNET](https://discord.gg/XVyUQ7UfQS)**
+[SERVEUR DISCORD](https://discord.gg/XVyUQ7UfQS) | [SITE INTERNET](https://discord.gg/XVyUQ7UfQS)
